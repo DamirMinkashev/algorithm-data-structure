@@ -1,4 +1,4 @@
-# Задание 1
+# Задание 2
 
 https://stepik.org/lesson/41234/step/2?unit=19818
 
